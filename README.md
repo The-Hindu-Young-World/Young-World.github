@@ -1,4 +1,4 @@
-# Young-World.github
+# Young World
 
 
 <p align = justify> "Young World" is a section dedicated to youth-centric content, it would likely encompass a diverse range of subjects to cater to the interests and needs of young readers. This might include articles on education, career options, technology, lifestyle, and current affairs, presented in a manner that resonates with a younger audience.</p>
